@@ -1,0 +1,1 @@
+Vector Concept Robot ARM CLAW standard servo by RubisTechnologies on Thingiverse: https://www.thingiverse.com/thing:66818
